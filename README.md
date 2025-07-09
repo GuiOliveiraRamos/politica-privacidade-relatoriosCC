@@ -36,4 +36,4 @@ A sua privacidade é a nossa prioridade.
 ## 4. Contacto
 
 Se tiver alguma questão sobre esta Política de Privacidade, por favor, entre em contacto através do e-mail:  
-**seu-email-de-contacto@exemplo.com**
+**guioliveiraramos30@gmail.com** ou **ccvisita@gmail.com**
